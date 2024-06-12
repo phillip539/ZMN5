@@ -1,0 +1,2 @@
+# ZMN5
+STRONG
